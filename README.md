@@ -78,4 +78,4 @@ Yes, Versitron offers industrial-grade media converters for harsh environments.
 
 ## Request Pricing & Availability
 
-Contact Versitron today to request a quote or learn more about our **Ethernet media converter** solutions.
+Contact [Versitron](https://www.versitron.com) today to request a quote or learn more about our **Ethernet media converter** solutions.
